@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Photographing
 - 💞️ I’m looking to collaborate on ... Cooking sKills
 - 📫 How to reach me ... 113b06137@mailst,cjcu.edu.tw
-- 😄 Pronouns: ... nothing
+- 😄 Pronouns: ... A plastic bag
 - ⚡ Fun fact: ... A manager of Vtuber Club
 
 <!---
